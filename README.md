@@ -1,5 +1,7 @@
 ## amazon_links
 
+[Archiology Venice Floor Lamp](https://www.amazon.com/gp/product/B07HNH1JNP/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B07HNH1JNP&linkCode=as2&tag=xinyulrsm-20&linkId=0802f1802483268a4867967f5ff13fc9)
+
 [Stone & Beam Cyan Ceramic Lamp, 20"H, With Bulb, White Shade](https://amzn.to/2RAcMrR)
  
 [Calico Critters A Carriage Ride Playset ](https://amzn.to/2CSxlrq)
